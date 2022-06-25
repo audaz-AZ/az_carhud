@@ -59,3 +59,11 @@ connected to any similar statements or services provided to the content owner by
 
 
 -------------------------------------------------------------
+
+Preview : 
+          ┃
+          ┃
+          ┗ Video : https://streamable.com/w4djwo
+          ┃
+          ┃
+          ┗ Fotos : https://imgur.com/a/4tLSeVf // https://imgur.com/a/CpCBLBR 
