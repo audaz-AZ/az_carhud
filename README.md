@@ -1,6 +1,6 @@
 -------------------------------------------------
 
-Buenas 👋 ¡ Te presento AZ_CARHUD !
+¡ Buenas 👋 Te presento AUDAZ_CARHUD !
 
 -------------------------------------------------
 
@@ -13,7 +13,7 @@ Buenas 👋 ¡ Te presento AZ_CARHUD !
 - 📘 0.00 de resmon.
 
 
-- 🛹 Apto para todas las versiones 
+- 🛹 Apto para todas las versiones .
 
 
 ------------------------------------------------
