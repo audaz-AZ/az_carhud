@@ -10,7 +10,7 @@ Buenas 👋 ¡ Te presento AZ_CARHUD !
 - 🌌 Colores negros y azules.
 
 
-- 📘 0.01 de remsmon.
+- 📘 0.01 de resmon.
 
 
 - 🛹 Apto para todas las versiones 
