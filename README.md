@@ -25,6 +25,12 @@
 🗯 - Fotos : https://imgur.com/a/CpCBLBR // https://imgur.com/a/4tLSeVf
 
 
+https://imgur.com/a/CpCBLBR
+
+
+https://imgur.com/a/4tLSeVf
+
+
 -------------------------------------------------
 
 
